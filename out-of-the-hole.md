@@ -9,7 +9,7 @@ Our story begins with...
 
 
 ## Chapter 3: Hardship
-the poor girl couldnt figure out this tech stuff and it made her really sad.
+the poor girl couldnt figure out this tech stuff and it made her really sad... I couldnt find where the rock was
 
 
 ## Chapter 4: Recovery
