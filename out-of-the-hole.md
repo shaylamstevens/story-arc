@@ -9,6 +9,7 @@ Our story begins with...
 
 
 ## Chapter 3: Hardship
+the poor girl couldnt figure out this tech stuff and it made her really sad.
 
 
 ## Chapter 4: Recovery
